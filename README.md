@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nesquiick or Loreleï !
+- 👀 I’m interested in discover new things !
+- 🌱 I’m currently learning Mobile application development in Finland ! :o
+- 💞️ I’m looking to collaborate on whatever you want if it's interesting enough !
+- 📫 How to reach me : noiraud.lorelei@gmail.com
